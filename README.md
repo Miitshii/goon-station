@@ -1,7 +1,5 @@
 # goon-station
-## A community driven project to formulate the perfect setup for automated long-term edging
-
-Imagine: getting back home on a friday afternoon, lying down in yoour goon station, attaching the cock milker, putting on the hpyno VR headset, and being in gooner heaven for the next 48+ hours straight! 😈
+## Imagine: getting back home on a friday afternoon, lying down in your goon station, attaching the cock milker, putting on the hpyno VR headset, and being in gooner heaven for the next 48+ hours straight! 😈
 
 For the beginning this is a very WIP, subjective concept. Over time the community will hopefully cum together to push this idea harder
 
@@ -103,4 +101,4 @@ Again, need to consider safety fallbacks
 - encourage gooners to start a OF/CB to become porn
 - health: forced workouts, forced movement; showers?
 - ..could also be included in the station
-- stimulation/rewards for a healthy life?
+- rewards for a healthy life, TPE
